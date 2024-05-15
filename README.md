@@ -1,1 +1,1 @@
-steve is major contribut of saving america in world war 2.
+steve is major contribute of saving america in world war 2.
